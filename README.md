@@ -12,7 +12,7 @@ Bernardo Guedes De Paula
 
 Bernardino#0338 <==Discord
 
-https://www.twitch.tv/random88292 <=== twitch
+https://www.twitch.tv/random88292 
 
 https://www.youtube.com/channel/UCN-T43pDXM5mSxvWMd30HmA
 
